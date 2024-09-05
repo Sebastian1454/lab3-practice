@@ -1,3 +1,3 @@
 # lab3-practice
 
-Erm, what the Sigma?
+Erm, Hawk Tuah!
